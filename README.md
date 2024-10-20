@@ -1,0 +1,1 @@
+# csad2425_KI-407_Ivaniv_Maksym_Bogdanovych06
